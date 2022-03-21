@@ -1,3 +1,3 @@
 # SoltanDev
 
-## all I know is that I know nothing!
+## All I know is that I know nothing!
